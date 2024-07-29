@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ab3projects
-- 👀 I’m interested in picking up new skills.
+- 👀 I’m interested in picking up new skills and always learning.
 - 🌱 I’m currently learning how to use python and learn bots and other subjects
 - 💞️ I’m looking to collaborate on learning this process.
 - 📫 How to reach me @ab111projects@yahoo.com
